@@ -1,7 +1,7 @@
 # Walisson Gonçalves👋🏾
 
 ## Um pouco sobre mim 
-Apaixonado por máquinas e tecnologia. Iniciei minha carreira profissioanal na indutria na qual me situo hoje trabalhando com máquinas industrias e neste momento me encontro no desenvolvimento na área da tecnologia buscando novos desafios e apresndizados.
+Apaixonado por máquinas e tecnologia. Iniciei minha carreira profissioanal na indutria na qual situo-me hoje trabalhando com máquinas industrias e neste momento me encontro em desenvolvimento na área da tecnologia buscando novos desafios e apresndizados.
 
 ## Conecte - se comigo.
 

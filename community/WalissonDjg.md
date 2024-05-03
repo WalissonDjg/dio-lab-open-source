@@ -5,7 +5,7 @@ Apaixonado por máquinas e tecnologia. Iniciei minha carreira profissioanal na i
 
 ## Conecte - se com migo.
 
-- [Linkedin](https://www.linkedin.com/in/walisson-de-jesus-64691b114/)
+- [Linkedin](https://www.linkedin.com/in/walisson-gon%C3%A7alves-64691b114/)
 - [GitHub](https://github.com/WalissonDjg) 
 
 
